@@ -3,7 +3,7 @@ Sample project structure for CSE299
 
 Your vote is yours. Cast it and cast it how you want. But remember that just like with voting, that your situation can hypothetically and maybe actually change in a moment.
 So perhaps remember when you cast your vote, that you could be any person anywhere in the world impacted by your vote that you are casting.
-Stranger circumstances have happened to real people.
+Is this a new line?
 Weigh what’s ethical to you and what you personally could live with as a gamble.
 That was the easy part. The hard part was scheduling a date. The state of New York has stringent rules about who they let in to teach a class. ‘Bestselling author’ doesn’t cut it. They do a serious background check.
 I called Tommy. “What do I do? What do I say to them?”
