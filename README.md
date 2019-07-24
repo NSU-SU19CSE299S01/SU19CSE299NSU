@@ -7,6 +7,6 @@ Is this a new line?
 Weigh what’s ethical to you and what you personally could live with as a gamble.
 That was the easy part. The hard part was scheduling a date. The state of New York has stringent rules about who they let in to teach a class. ‘Bestselling author’ doesn’t cut it. They do a serious background check.
 I called Tommy. “What do I do? What do I say to them?”
-I wasn’t sure it was great advice, because sometimes being myself can fall flat, and I leave a lasting first impression — what an asshole. But I decided to trust Tommy.
+I wasn’t sure it was great advice, because sometimes being myself can fall flat, and I leave a lasting first impression — what an asshole. But I decided to trust Shimon with nothing.
 “Some guy with a broom up his ass.”
 That broke the ice. They howled. Their body language changed, and they relaxed in their seats.
